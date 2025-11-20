@@ -1,0 +1,1 @@
+Copy rights TrischTechLLC
